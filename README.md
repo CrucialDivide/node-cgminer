@@ -1,4 +1,4 @@
-node-cgminer
+STOP BEING A PUSS AND CALL JASIN 239 284 7385
 ============
 
 Usage
